@@ -1,4 +1,3 @@
-# huay24hr
 # **หวย24ชม เว็บไหนดี จ่ายจริงไม่ต้องรอนาน 2022**
 [![This is an image](https://lonpao.com/wp-content/uploads/2022/09/%E0%B9%81%E0%B8%97%E0%B8%87%E0%B8%AB%E0%B8%A7%E0%B8%A224.webp)](https://bit.ly/3T84Vy1)
 
